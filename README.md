@@ -1,0 +1,1 @@
+# gabarit_partiee2
